@@ -41,6 +41,3 @@ Our privacy policy may change over time to reflect updates in legal, technical, 
 If you have questions or need further clarification, feel free to contact us at:  
 **Email:** s89260877547@gmail.com  
 
---- 
-
-Thank you for trusting CaseWay! Your privacy is our top priority.
